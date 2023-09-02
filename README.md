@@ -26,7 +26,7 @@ Right now, I'm working on my college thesis, which involves developing a novel a
 
 ## Connect with Me
 
-Feel free to connect with me and explore my journey in the world of technology. You can find me on [LinkedIn](https://www.linkedin.com/in/ellyza-mari-jocson-papas-979aa0181/) or connect with me on [Facebook](https://www.facebook.com/ILikeBigButts/). If you have any questions or would like to reach out, don't hesitate to shoot me an email at [your@email.com](mailto:ellyzajpapas@su.edu.ph).
+Feel free to connect with me and explore my journey in the world of technology. You can find me on [LinkedIn](https://www.linkedin.com/in/ellyza-mari-jocson-papas-979aa0181/) or connect with me on [Facebook](https://www.facebook.com/ILikeBigButts/). If you have any questions or would like to reach out, don't hesitate to shoot me an email at [ellyzajpapas@su.edu.ph](mailto:ellyzajpapas@su.edu.ph).
 
 Let's collaborate and make amazing things happen!
 
